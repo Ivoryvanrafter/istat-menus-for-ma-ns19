@@ -1,4 +1,4 @@
-
+Get the ultimate iStat Menus for macOS automation with ultimate iStat Menus for macOS Automation | hotkey-customization + duplicate-finder. Featuring hotkey-customization and
 
 
 
